@@ -235,4 +235,3 @@
 
 光斑重叠的一刻，田心猛地后退，撑起身子坐起，干呕起来。
 
-![Visitors](https://profile-counter.glitch.me/marumisama.for-me/count.svg)
