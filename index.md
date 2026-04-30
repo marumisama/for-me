@@ -235,4 +235,4 @@
 
 光斑重叠的一刻，田心猛地后退，撑起身子坐起，干呕起来。
 
-![visitor count](https://visitor-badge.laobi.icu/badge?page_id=你的用户名.仓库名)
+[访问次数](https://count.getloli.com/get/@你的用户名.仓库名)
